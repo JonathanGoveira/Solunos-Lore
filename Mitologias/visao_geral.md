@@ -1,55 +1,37 @@
-# 🌌 Visão Geral de Solunos
+# Visão Geral de Solunos
 
-**Solunos** é um mundo encantado onde tudo possui alma — das criaturas mais minúsculas até as montanhas e estrelas. Criado a partir dos fragmentos de uma realidade destruída, este universo pulsa com um ciclo mágico que une vida, morte e mana.
+**Solunos** é um mundo onde tudo pulsa com uma vida invisível, um sopro silencioso que flui por cada pedra, folha e criatura. Um planeta isolado, suspenso no limiar entre o universo conhecido e um abismo escuro e insondável, onde a luz não alcança e os nomes não têm eco.
 
-No coração de Solunos existem duas forças ancestrais:  
-- **Zaya**, guardiã do **determinismo**, dos ciclos e do que é previsível.  
-- **Morgan**, senhor do **acaso**, do caos e da criação espontânea.
+## 🌌 Um mundo esquecido pelo tempo
 
-Ambos guiam os destinos, mas não controlam. Eles oferecem caminhos — e testam aqueles que ousam escolher.
+A origem de Solunos se perdeu nos ciclos do tempo. Algumas culturas sussurram canções antigas, outras desenham constelações para lembrar, mas ninguém conhece a verdade. Para muitos, Solunos sempre esteve ali — como o sonho de algo maior que ousou existir onde não deveria.
 
----
+Aqui, o tempo dança de forma estranha. Ecos de eras antigas repousam sobre raízes novas. É um mundo que **vive do renascimento**, do esquecimento e da lembrança. 
 
-## ✴️ Temas Centrais
+## ✨ A Mana Viva
 
-- **Ciclo de Mana Viva**  
-Toda ação gera mana usada, que se torna mana morta e depois retorna à natureza como mana natural.
+Em Solunos, **vida e magia são o mesmo tecido**, entrelaçados como o sussurro do vento e o brilho da manhã. A energia que permeia tudo é chamada de **mana viva** — não como algo a ser usado, mas como algo que **é**.
 
-- **Dualidade e Equilíbrio**  
-Luz e escuridão, previsibilidade e caos, ruína e esperança convivem em Solunos, criando narrativas profundas e abertas a interpretação.
+Todo ser que nasce em Solunos carrega dentro de si um fragmento dessa mana. Quando morre, **não desaparece — transforma-se**. Seu espírito retorna ao mundo como **mana natural**, alimentando as raízes, o solo, a névoa, o som, a cor. Como uma árvore que ao tombar, gera fungos, abriga ninhos, cria florestas.
 
-- **Sentimentos como Força Mágica**  
-As emoções moldam o mundo e influenciam seres e magias.
+A magia em Solunos não é poder.  
+**É memória. É presença. É espírito.**  
+Não existe magia sem alma, nem alma sem o toque da mana.
 
----
+## 🐾 Os que vieram antes
 
-## 🌀 Entidades e Mistérios
+Entre os muitos mistérios que habitam Solunos, dois nomes surgem com frequência nas histórias antigas: **Zaya** e **Morgan**. Pouco se sabe sobre sua natureza, apenas que **não se parecem com nada que exista** entre os Solunares, e que caminham entre os mundos — entre o acaso e o destino.
 
-- O universo anterior foi consumido pelo **Devorador**, uma entidade incompreensível de fome e vazio.  
-- **Zaya** e **Morgan** sobreviveram como fragmentos conscientes da última realidade.  
-- Eles criam **Guardiões**, seres com domínio de vários elementos, para proteger Solunos das ameaças emergentes.
+Alguns dizem que são a lembrança viva de eras anteriores. Outros, que são **os primeiros ecos de Solunos**, quando ainda não havia forma, apenas desejo de ser.
 
----
+## 🌑 O Desconhecido
 
-## ⚔️ Os Guardiões
+Enquanto a vida emana do interior de Solunos, há uma força que **devora** tudo o que pulsa. Uma fome sem nome. Criaturas sem identidade. Memórias apagadas, sentimentos engolidos, formas que se dissolvem no vazio.
 
-Os Guardiões são almas despertas que se conectam com todos os reinos elementais. Eles lideram criaturas mágicas e enfrentam os **Desconhecidos**, seres que corroem memórias, paisagens e sentimentos.
+São chamados apenas de **Desconhecidos**.
+
+Eles não criam, não falam, não pertencem. São brechas abertas no tecido do mundo. Vindos da escuridão além do céu, tentam silenciar Solunos — não com gritos, mas com esquecimento.
 
 ---
 
-## 🌿 Como Solunos Funciona?
-
-- A **magia** é viva e repleta de espíritos que habitam cada feitiço ou forma elemental.  
-- **Cartas** são manifestações físicas desses espíritos — entidades com personalidades e vontades únicas.  
-- Toda **vida** em Solunos, ao morrer, retorna ao ciclo de mana.
-
----
-
-## 🧭 Tom Narrativo
-
-Solunos é um mundo **fofo, mágico e acolhedor**, mas **marcado por ruínas, incertezas e lacunas**. As histórias são repletas de **mistério suave**, de interpretações múltiplas e simbolismos.  
-Mesmo diante da queda, há beleza e cuidado.
-
----
-
-> “Solunos não precisa ser compreendido, apenas sentido.”
+📝 *Solunos é um mundo de raízes profundas e névoas espessas. Aqui, nada é fixo, tudo respira. A verdade muda com quem a conta, mas a magia — viva, terna e antiga — permanece.*
