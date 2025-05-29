@@ -30,7 +30,7 @@ Enquanto a vida emana do interior de Solunos, há uma força que **devora** tudo
 
 São chamados apenas de **Desconhecidos**.
 
-Eles não criam, não falam, não pertencem. São brechas abertas no tecido do mundo. Vindos da escuridão além do céu, tentam silenciar Solunos — não com gritos, mas com esquecimento.
+Eles não criam, não falam, não pertencem. São brechas abertas no tecido do mundo. Vindos da escuridão além do céu quando a mana se silencia, eles tentam silenciar Solunos — não com gritos, mas com esquecimento.
 
 ---
 
