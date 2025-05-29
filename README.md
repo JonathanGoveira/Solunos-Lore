@@ -9,7 +9,7 @@
 ### 📖 História
 - [Visão Geral](Mitologias/visao_geral.md)
 - [Linha do Tempo](Mitologias/linha_do_tempo.md)
-- [Origens dos Guardiões](Mitologias/oriigem_dos_guardioes.md)
+- [Origens dos Guardiões](Mitologias/origem_dos_guardioes.md)
 - [Zaya e Morgan](Mitologias/zaya_e_morgan.md)
 
 ### 🧬 Raças
