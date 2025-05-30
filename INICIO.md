@@ -2,6 +2,10 @@
 
 **Solunos** é um universo mágico em constante equilíbrio entre luz e escuridão. Tudo possui alma — criaturas, elementos, memórias — e esse ciclo espiritual conecta todas as coisas vivas. Este repositório é a base da mitologia, raças, regiões e eventos que compõem o mundo de Solunos.
 
+## Tema Central
+
+> "Solunos é um mundo onde a maior ameaça não é a morte, mas o esquecimento."
+
 ---
 
 ## 📚 Conteúdo
