@@ -1,37 +1,37 @@
 # Visão Geral de Solunos
 
-**Solunos** é um mundo onde tudo pulsa com uma vida invisível, um sopro silencioso que flui por cada pedra, folha e criatura. Um planeta isolado, suspenso no limiar entre o universo conhecido e um abismo escuro e insondável, onde a luz não alcança e os nomes não têm eco.
+Solunos é um mundo antigo, misterioso e vivo, onde tudo pulsa com energia — onde tudo **é** energia. Um planeta no limiar entre o universo visível e o desconhecido, cercado por uma escuridão profunda e impenetrável.
 
-## 🌌 Um mundo esquecido pelo tempo
+Neste mundo, todos os seres vivos são conectados por uma força essencial chamada **mana viva**. Ela é o sopro da vida, a energia que pulsa em tudo que existe. Mas dentro de cada ser também habita algo ainda mais sutil: a **magia**, que é a expressão do espírito, da individualidade. Mana é o corpo em fluxo com o mundo. Magia é a alma — o brilho único que um ser carrega.
 
-A origem de Solunos se perdeu nos ciclos do tempo. Algumas culturas sussurram canções antigas, outras desenham constelações para lembrar, mas ninguém conhece a verdade. Para muitos, Solunos sempre esteve ali — como o sonho de algo maior que ousou existir onde não deveria.
+Quando um ser morre, sua **mana retorna à terra**, gerando vida. Como uma árvore caída que dá origem a brotos e fungos. Já sua **magia permanece**, ecoando pelo mundo, como uma presença que pode ser sentida, chamada ou conectada. Por isso, a magia é relação. É necessário criar vínculo, sintonia e afinidade para manifestá-la.
 
-Aqui, o tempo dança de forma estranha. Ecos de eras antigas repousam sobre raízes novas. É um mundo que **vive do renascimento**, do esquecimento e da lembrança. 
+Aqueles que entendem essas conexões conseguem **invocar e interagir com os espíritos da magia**, criando laços, aprendendo dons e se transformando. Em Solunos, **tudo o que é aprendido vem da conexão** — com o mundo, com os outros e com os próprios sentimentos.
 
-## ✨ A Mana Viva
+Solunos é governado por quatro grandes reinos elementais, cada um com suas próprias culturas, formas de vida e maneira de compreender o mundo:
 
-Em Solunos, **vida e magia são o mesmo tecido**, entrelaçados como o sussurro do vento e o brilho da manhã. A energia que permeia tudo é chamada de **mana viva** — não como algo a ser usado, mas como algo que **é**.
+## 🌌 Reino dos Céus
+Suspenso acima das nuvens, molda o vento, os trovões, os relâmpagos e o vazio. Os céus observam, ouvem e anunciam mudanças. Seus habitantes são leves, velozes e enigmáticos.
 
-Todo ser que nasce em Solunos carrega dentro de si um fragmento dessa mana. Quando morre, **não desaparece — transforma-se**. Seu espírito retorna ao mundo como **mana natural**, alimentando as raízes, o solo, a névoa, o som, a cor. Como uma árvore que ao tombar, gera fungos, abriga ninhos, cria florestas.
+**Elementos associados**: Ar, trovão, relâmpago, som, éter.
 
-A magia em Solunos não é poder.  
-**É memória. É presença. É espírito.**  
-Não existe magia sem alma, nem alma sem o toque da mana.
+## 🌿 Reino das Matas
+Vasto e profundo, abriga raízes, fungos, folhas e espíritos da terra fértil. É um reino de ciclos, de nascimento e apodrecimento, onde o tempo move com calma.
 
-## 🐾 Os que vieram antes
+**Elementos associados**: Terra, raízes, fungos, plantas, ciclos de vida.
 
-Entre os muitos mistérios que habitam Solunos, dois nomes surgem com frequência nas histórias antigas: **Zaya** e **Morgan**. Pouco se sabe sobre sua natureza, apenas que **não se parecem com nada que exista** entre os Solunares, e que caminham entre os mundos — entre o acaso e o destino.
+## 🌊 Reino das Águas
+Entre mares, lagos e névoas, acolhe os fluxos da vida, os mistérios do subconsciente e o silêncio das profundezas. Suas criaturas são flexíveis, empáticas e fluídas.
 
-Alguns dizem que são a lembrança viva de eras anteriores. Outros, que são **os primeiros ecos de Solunos**, quando ainda não havia forma, apenas desejo de ser.
+**Elementos associados**: Água, névoa, correntezas, emoção, memória.
 
-## 🌑 O Desconhecido
+## 🔥 Reino das Brasas
+Em constante calor e movimento, forja não só metal, mas ideias, vontades e transformações. Aqui o fogo não destrói — ele transforma. Um reino de paixão e reinvenção.
 
-Enquanto a vida emana do interior de Solunos, há uma força que **devora** tudo o que pulsa. Uma fome sem nome. Criaturas sem identidade. Memórias apagadas, sentimentos engolidos, formas que se dissolvem no vazio.
-
-São chamados apenas de **Desconhecidos**.
-
-Eles não criam, não falam, não pertencem. São brechas abertas no tecido do mundo. Vindos da escuridão além do céu quando a mana se silencia, eles tentam silenciar Solunos — não com gritos, mas com esquecimento.
+**Elementos associados**: Fogo, calor, brasas, forja, transformação.
 
 ---
 
-📝 *Solunos é um mundo de raízes profundas e névoas espessas. Aqui, nada é fixo, tudo respira. A verdade muda com quem a conta, mas a magia — viva, terna e antiga — permanece.*
+Solunos não é um mundo feito para ser explicado completamente. Ele **respira mistério**, e muitas de suas origens foram esquecidas com o tempo. Zaya e Morgan, entidades diferentes de tudo que se conhece, caminham entre os Solunares desde tempos imemoriais. Ninguém sabe de onde vieram — apenas que **sempre estiveram aqui**.
+
+Solunos é um mundo vivo, feito de sentimentos e conexões. E cada ser que nasce nele carrega dentro de si **a centelha da magia**.
