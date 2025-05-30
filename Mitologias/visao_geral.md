@@ -10,22 +10,22 @@ Aqueles que entendem essas conexões conseguem **invocar e interagir com os esp�
 
 Solunos é governado por quatro grandes reinos elementais, cada um com suas próprias culturas, formas de vida e maneira de compreender o mundo:
 
-## 🌌 Reino dos Céus
+## 🌌 Aerelis - O Reino dos Céus
 Suspenso acima das nuvens, molda o vento, os trovões, os relâmpagos e o vazio. Os céus observam, ouvem e anunciam mudanças. Seus habitantes são leves, velozes e enigmáticos.
 
 **Elementos associados**: Ar, trovão, relâmpago, som, éter.
 
-## 🌿 Reino das Matas
+## 🌿 Drelvara - O Reino das Matas
 Vasto e profundo, abriga raízes, fungos, folhas e espíritos da terra fértil. É um reino de ciclos, de nascimento e apodrecimento, onde o tempo move com calma.
 
 **Elementos associados**: Terra, raízes, fungos, plantas, ciclos de vida.
 
-## 🌊 Reino das Águas
+## 🌊 Nymara - O Reino das Águas
 Entre mares, lagos e névoas, acolhe os fluxos da vida, os mistérios do subconsciente e o silêncio das profundezas. Suas criaturas são flexíveis, empáticas e fluídas.
 
 **Elementos associados**: Água, névoa, correntezas, emoção, memória.
 
-## 🔥 Reino das Brasas
+## 🔥 Lumestral - O Reino das Brasas
 Em constante calor e movimento, forja não só metal, mas ideias, vontades e transformações. Aqui o fogo não destrói — ele transforma. Um reino de paixão e reinvenção.
 
 **Elementos associados**: Fogo, calor, brasas, forja, transformação.
