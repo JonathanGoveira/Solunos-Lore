@@ -1,87 +1,50 @@
-# 🕰️ Linha do Tempo de Solunos
+# Linha do Tempo de Solunos
 
-> Este é um registro fragmentado do que os anciãos ainda se recordam.  
-> As eras são contadas pelos sussurros da mana e pela memória das terras.
-
----
-
-## 🌱 Nascimento dos Solunos
-
-Diz-se que, antes de tudo, havia apenas o **limiar** — o ponto onde o universo visível se desfaz em escuridão.  
-Foi ali que algo floresceu.
-
-Do solo primevo, úmido de silêncio e potencial, **Solunos** nasceu.  
-Um planeta vivo, onde tudo respira mana. Onde o tempo não começou com um estouro, mas com um sussurro.
-
-As primeiras formas de vida surgiram como fragmentos de sonho.  
-Dessas faíscas nasceram os povos elementais, cada qual tocado por uma forma única de mana viva.  
-Foi nesse tempo que **Zaya e Morgan** foram avistados pela primeira vez — não surgiram, apenas **estavam ali**.  
-Velhos como o mundo, mas brincalhões como filhotes.
+Esta linha do tempo apresenta os principais marcos históricos conhecidos no mundo de Solunos. Por ser um mundo antigo e envolto em mistério, muitas datas e eventos se perderam no tempo — o que restam são histórias preservadas por tradições orais, inscrições antigas e espíritos que ainda sussurram fragmentos do passado.
 
 ---
 
-## 🌸 Era da Harmonia
+## 🌱 Nascimento dos Solunares
+Há eras incontáveis, a vida começou a florescer em Solunos. Os primeiros Solunares surgiram como emanações da mana viva, moldados pelos elementos ao seu redor. Cada povo encontrou afinidade com uma região específica, originando os quatro grandes reinos:
 
-Durante milênios, as raças de Solunos coexistiram em ciclos de aprendizado e partilha.  
-O mundo pulsava como um só coração, e os elementos se entrelaçavam com beleza e respeito.
-
-Os **Lumenfolk** ensinavam a sabedoria da chama que aquece.  
-Os **Nymari**, a escuta da névoa e a dança das marés.  
-Os **Drelkin**, o silêncio fértil das raízes.  
-E os **Aerun**, o voo que leva a alma para além da forma.
-
-Essa era foi marcada por **alianças, festivais e descobertas mágicas**.  
-A mana era abundante. As canções, suaves.  
-Mas até a canção mais bela conhece a pausa.
+- **Aerelis**, nas alturas celestes, conectados ao vento e ao trovão.  
+- **Drelvara**, enraizados nas matas, vivendo em harmonia com a terra e seus frutos.  
+- **Nymara**, nas profundezas das águas, atentos às emoções e correntes.  
+- **Lumestral**, entre brasas e vulcões, moldando suas criações com calor e transformação.
 
 ---
 
-## 🌑 A Guerra Silenciosa
+## 🌸 Era de Harmonia
+Durante muito tempo, os reinos coexistiram em equilíbrio. Havia trocas, alianças, conflitos. O mundo crescia. Os laços com a mana e a magia se aprofundavam. Os Solunares aprendiam a se conectar com os espíritos e desenvolver dons únicos.
 
-Ninguém sabe ao certo como começou.  
-Um dia, as palavras se tornaram desconfiança. Os símbolos de mana, distorcidos.  
-As raízes deixaram de ouvir os ventos. As águas se fecharam.  
-As chamas queimaram pontes antes de iluminar caminhos.
-
-Por séculos, as raças se enfrentaram em pequenas disputas, tensões veladas, segredos não ditos.  
-Não foi uma guerra declarada. Foi uma guerra **silenciosa**.  
-Feita de medos antigos e mágoas mal resolvidas.
-
-Nesse tempo, muito se perdeu.  
-Memórias, saberes, lugares inteiros.  
-Foi também nesse tempo que a mana começou a **enfraquecer**...  
-Como se a dor da Terra ecoasse na própria essência da magia.
+Zaya e Morgan, seres antigos e misteriosos, já caminhavam entre os povos — silenciosos, observadores, e por vezes, guias para aqueles que buscavam respostas além dos reinos.
 
 ---
 
-## 🌘 A Primeira Manifestação dos Desconhecidos
+## 🕯️ A Guerra Silenciosa
+Sem aviso, um desequilíbrio ocorreu. Espíritos começaram a desaparecer. Animais e plantas feneceram sem razão. A mana parou de fluir em certas regiões. Este evento ficou conhecido como o **Silêncio da Mana**.
 
-Após um longo inverno espiritual, surgiu algo **diferente**.  
-Criaturas sem nome. Sem alma. Sem mana.  
-Chamavam-nas de **Desconhecidos** — pois eram o oposto de tudo que era vivo.
-
-Eles não vinham em hordas. Surgiam **em silêncio**, nas sombras deixadas pelas brigas.  
-Corrompiam terras, memórias, sentimentos.  
-Alguns dizem que são atraídos pela **fraqueza da mana viva**, como vermes por fruta caída.
-
-A primeira manifestação quase apagou um dos reinos.  
-Mas foi também nesse tempo que **surgiu o primeiro Guardião**.
+O medo espalhou-se. Reinos se acusaram mutuamente. Antigas tensões explodiram em pequenos conflitos. O silêncio cresceu, e o que antes era harmonia tornou-se desconfiança. Muitas magias ancestrais foram perdidas nesse período.
 
 ---
 
-## 🏛️ O Conselho das Terras Mistas
+## 👁️ A Primeira Manifestação dos Desconhecidos
+No auge da instabilidade, **criaturas do vazio** atravessaram os limites de Solunos. Chamados de **Desconhecidos**, eram seres sem vínculo com a mana ou magia — devoradores do que é vivo. Eles corrompem, apagam e silenciam. Não apenas destroem: eles esquecem.
 
-Com a ameaça dos Desconhecidos agora conhecida, os líderes de Solunos se reuniram.  
-Criaram o **Conselho das Terras Mistas** — uma união entre reinos, guiada por um pacto ancestral.
-
-O conselho não apenas vigia os sinais do retorno dos Desconhecidos,  
-mas também observa os **sinais do surgimento de novos Guardiões** —  
-seres capazes de canalizar todos os elementos e restaurar o equilíbrio da mana.
-
-Nas Terras Mistas, foi erguido um círculo de pedras onde as decisões são tomadas e o silêncio da mana é escutado com atenção.
+Foi preciso a união dos reinos para resistir. Muitos se sacrificaram, e novos vínculos foram forjados. Os Desconhecidos foram repelidos, mas não destruídos. Apenas adormecidos.
 
 ---
 
-> A história de Solunos continua.  
-> Alguns acreditam que o ciclo irá se repetir.  
-> Outros dizem que, desta vez, algo diferente irá nascer.
+## 🌀 Fundação do Conselho das Terras Mistas
+Após a primeira invasão, os reinos criaram o **Conselho das Terras Mistas**, uma aliança sagrada situada na região central de Solunos. Seu papel é:
+
+- Observar sinais do retorno dos Desconhecidos;  
+- Manter a paz entre os reinos;  
+- Cuidar da memória da magia;  
+- Reconhecer e guiar os **Guardiões** — Solunares raros capazes de se conectar com múltiplos elementos e canalizar forças esquecidas.
+
+Desde então, as eras de Solunos são marcadas por períodos de tranquilidade e de alerta. O ciclo nunca termina — a vida em Solunos é feita de pulsações, assim como a mana que o sustenta.
+
+---
+
+> *“O silêncio virá novamente. Mas enquanto houver quem se lembre, Solunos continuará vivo.”*
