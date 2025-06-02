@@ -1,50 +1,49 @@
-# Linha do Tempo de Solunos
+# 📜 Linha do Tempo de Solunos
 
-Esta linha do tempo apresenta os principais marcos históricos conhecidos no mundo de Solunos. Por ser um mundo antigo e envolto em mistério, muitas datas e eventos se perderam no tempo — o que restam são histórias preservadas por tradições orais, inscrições antigas e espíritos que ainda sussurram fragmentos do passado.
-
----
-
-## 🌱 Nascimento dos Solunares
-Há eras incontáveis, a vida começou a florescer em Solunos. Os primeiros Solunares surgiram como emanações da mana viva, moldados pelos elementos ao seu redor. Cada povo encontrou afinidade com uma região específica, originando os quatro grandes reinos:
-
-- **Aerelis**, nas alturas celestes, conectados ao vento e ao trovão.  
-- **Drelvara**, enraizados nas matas, vivendo em harmonia com a terra e seus frutos.  
-- **Nymara**, nas profundezas das águas, atentos às emoções e correntes.  
-- **Lumestral**, entre brasas e vulcões, moldando suas criações com calor e transformação.
+A história de Solunos é contada em ecos — fragmentos de lembranças preservadas por poucos. Nem tudo está claro, e há lacunas que nem os mais antigos espíritos conseguem preencher. Mas alguns marcos permaneceram como pilares da memória coletiva.
 
 ---
 
-## 🌸 Era de Harmonia
-Durante muito tempo, os reinos coexistiram em equilíbrio. Havia trocas, alianças, conflitos. O mundo crescia. Os laços com a mana e a magia se aprofundavam. Os Solunares aprendiam a se conectar com os espíritos e desenvolver dons únicos.
+## 🌅 Era da Harmonia
 
-Zaya e Morgan, seres antigos e misteriosos, já caminhavam entre os povos — silenciosos, observadores, e por vezes, guias para aqueles que buscavam respostas além dos reinos.
+Nesta era, a mana fluía em abundância, e os reinos de **Aerelis**, **Nymara**, **Drelvara** e **Lumestral** floresciam em suas próprias direções.
 
----
-
-## 🕯️ Era do Silêncio - A Guerra Silenciosa
-Sem aviso, um desequilíbrio ocorreu. Espíritos começaram a desaparecer. Animais e plantas feneceram sem razão. A mana parou de fluir em certas regiões. Este evento ficou conhecido como o **Silêncio da Mana**.
-
-O medo espalhou-se. Reinos se acusaram mutuamente. Antigas tensões explodiram em pequenos conflitos. O silêncio cresceu, e o que antes era harmonia tornou-se desconfiança. Muitas magias ancestrais foram perdidas nesse período.
+Embora houvesse disputas e guerras ocasionais, nenhuma ameaça parecia capaz de abalar os fundamentos do mundo. Os vivos desenvolviam seus **Dons** e aprendiam a se conectar com os espíritos ancestrais, formando uma teia viva de memória e poder.
 
 ---
 
-## 👁️ Era Sombria - A Primeira Manifestação dos Desconhecidos
-No auge da instabilidade, **criaturas do vazio** atravessaram os limites de Solunos. Chamados de **Desconhecidos**, eram seres sem vínculo com a mana ou magia — devoradores do que é vivo. Eles corrompem, apagam e silenciam. Não apenas destroem: eles esquecem.
+## 🌫️ A Guerra Silenciosa
 
-Foi preciso a união dos reinos para resistir. Muitos se sacrificaram, e novos vínculos foram forjados. Os Desconhecidos foram repelidos, mas não destruídos. Apenas detidos.
+Em certo ciclo, a mana começou a se calar.
 
----
+As conexões com os Dons tornaram-se instáveis, os laços com os espíritos frágeis, e muitos reinos entraram em conflito, acusando uns aos outros de corromper o fluxo vital do mundo.
 
-## 🌀 Era da vigília - Fundação do Conselho das Terras Mistas
-Após a primeira invasão, os reinos criaram o **Conselho das Terras Mistas**, uma aliança sagrada situada na região central de Solunos. Seu papel é:
+Foi nesse tempo de desconfiança e rupturas que surgiram os **Desconhecidos** — entidades sem rosto, que não possuíam nem Dom, nem mana, nem lembrança. Apenas fome pelo vazio.
 
-- Observar sinais do retorno dos Desconhecidos;  
-- Manter a paz entre os reinos;  
-- Cuidar da memória da magia;  
-- Reconhecer e guiar os **Guardiões** — Solunares raros capazes de se conectar com múltiplos elementos e canalizar forças esquecidas.
+E foi também nessa era, quando tudo parecia ruir, que **Zaya e Morgan anunciaram a chegada dos Guardiões** — quatro crianças nascidas sem nenhum Dom, mas que carregavam dentro de si a promessa de reconexão.
 
-Desde então, as eras de Solunos são marcadas por períodos de tranquilidade e de alerta. O ciclo nunca termina — a vida em Solunos é feita de pulsações, assim como a mana que o sustenta.
+Esses Guardiões foram agraciados com o poder de se conectar com os Dons de todos os reinos. Tornaram-se ponte entre o mundo físico e o espiritual, entre o que se lembra e o que está prestes a ser esquecido.
 
 ---
 
-> *“O silêncio virá novamente. Mas enquanto houver quem se lembre, Solunos continuará vivo.”*
+## 🌑 A Era do Silêncio
+
+Apesar dos esforços dos Guardiões, os Desconhecidos espalharam o esquecimento por Solunos. Regiões inteiras se tornaram cinzas. Espíritos começaram a desaparecer, memórias foram apagadas, e até os Dons mais poderosos deixaram de responder aos chamados.
+
+Diz-se que nem mesmo os vivos lembram de tudo que foi perdido nessa era.
+
+---
+
+## 🛡️ Fundação do Conselho das Terras Mistas
+
+Inspirados por Zaya e Morgan, os reinos deixaram suas diferenças de lado e fundaram o **Conselho das Terras Mistas**, uma aliança entre sábios, andarilhos e seres espirituais.
+
+O Conselho passou a estudar o comportamento dos Desconhecidos, proteger as últimas memórias vivas e manter a vigilância sobre o fluxo da mana e dos Dons.
+
+---
+
+## 📖 O Presente
+
+Solunos vive tempos frágeis. O Conselho ainda vigia, os reinos mantêm uma paz inquieta, e os Guardiões são poucos.
+
+Mas enquanto existir memória, **há esperança de reconexão**.
