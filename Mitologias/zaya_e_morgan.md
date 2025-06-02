@@ -24,7 +24,7 @@ Morgan é o silêncio entre os pensamentos, o relâmpago que corta a certeza, o 
 - É associado à **noite**, ao mistério, aos sonhos e às possibilidades escondidas.
 - Seus passos sem rumo são inspiração para aqueles que se sentem à margem do mundo — **os solitários, os criadores, os curiosos**.
 
-Morgan não é o caos destrutivo, mas o caos criativo — o **germinar do inesperado**. Reza a lenda que ele aparece na forma de um animal peculiar, sempre **em silêncio, observando**.
+Morgan não é o caos destrutivo, mas o caos criativo — o **germinar do inesperado**. Ele encoraja a descoberta, a reinvenção e o rompimento de ciclos estagnados.
 
 ---
 
@@ -64,23 +64,21 @@ Em cada canto de Solunos, há histórias diferentes — mas todos concordam que 
 
 Durante a **Guerra Silenciosa**, quando a mana se calou e os Desconhecidos começaram a apagar tudo que era vivo, **Zaya e Morgan não empunharam armas — mas moveram forças mais antigas e profundas que a própria guerra.**
 
-- Diz-se que **Zaya sussurrou aos espíritos mais antigos de cada reino**, despertando neles lembranças ancestrais e a vontade de proteger o ciclo da vida.  
-- E que **Morgan libertou magias seladas pela própria história**, permitindo que o inesperado rompesse o ciclo de esquecimento.
+- Diz-se que **Zaya ouviu o lamento das Terras Mistas** e **Morgan percebeu um padrão nos sinais do esquecimento**.
+- Através de uma antiga profecia, reconheceram o nascimento de **quatro crianças sem dons — um sinal raro e poderoso**.
 
-Esses espíritos — conhecidos por seus povos como **Aerelis, Drelvara, Nymara e Lumestral** — foram transformados em algo novo: **os primeiros Guardiões**.  
-Em troca de seus dons mágicos, receberam a habilidade de se conectar com todos os elementos, tornando-se pontes vivas entre as raças.
+Essas crianças, embora desprovidas de dons próprios, carregavam em si o potencial de **conexão com todos os dons elementais**.  
+Zaya e Morgan então **despertaram nelas o Dom do Guardião**, uma força única capaz de proteger o ciclo da vida em Solunos.
 
-A partir de seus nomes, nasceram os **quatro grandes reinos elementais** de Solunos, em honra à sua força, sacrifício e sabedoria.
+Assim nasceram os primeiros **Guardiões** — não como heróis escolhidos, mas como resposta natural ao colapso do mundo.
 
 **Zaya e Morgan não fundaram o Conselho das Terras Mistas**, mas foram sua **inspiração e símbolo de equilíbrio**, mantendo viva a memória de que todo esquecimento pode ser combatido com conexão.
-
 
 ---
 
 ## ✨ Um Mistério Vivo
 
-Zaya e Morgan **não têm rosto fixo, nem forma certa.**  
-Aparecem como **gatos?**, como **sombras?**, como **luzes dançantes?**  
-Ninguém sabe. Todos sentem.
+Zaya e Morgan não têm forma única ou presença física constante.  
+São sentidos **nas marés que retornam**, **nos sonhos inexplicáveis**, **no silêncio que antecede a mudança**.
 
 > *“Talvez sejam apenas os nomes que damos àquilo que está além da compreensão — o tempo e o acaso. Mas em Solunos, eles são reais.”*
