@@ -30,6 +30,10 @@ Em constante calor e movimento, forja não só metal, mas ideias, vontades e tra
 
 **Elementos associados**: Fogo, calor, brasas, forja, transformação.
 
+## Interação com os Dons
+
+Alguns Solunares desenvolveram formas de interagir com os Dons por meio de objetos ancestrais ou rituais — fragmentos da memória viva que sobreviveram ao tempo. Esses objetos, às vezes chamados de *Cartas do Espírito*, são portais para o mundo espiritual. Cada carta representa um elo com um Dom específico, permitindo que o usuário manifeste habilidades ligadas a espíritos antigos, desde que haja mana e vínculo suficientes.
+
 ---
 
 Solunos não é um mundo feito para ser explicado completamente. Ele **respira mistério**, e muitas de suas origens foram esquecidas com o tempo. Zaya e Morgan, entidades diferentes de tudo que se conhece, caminham entre os Solunares desde tempos imemoriais. Ninguém sabe de onde vieram — apenas que **sempre estiveram aqui**.
