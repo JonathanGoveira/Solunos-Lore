@@ -1,75 +1,73 @@
-# 🌌 Visão Geral de Solunos
+# 🌟 Visão Geral de Solunos
 
-**Solunos** é um mundo encantado, antigo e cósmico, suspenso no limiar entre a realidade observável e o vazio do esquecimento. Um planeta vivo, onde tudo pulsa com **mana** — a energia da existência — e onde lembrar é mais importante do que sobreviver.
+Solunos é um mundo mágico, cheio de lugares encantados, criaturas curiosas e histórias que vivem dentro das coisas.  
+É um planeta onde até o vento tem lembranças, e onde tudo — sim, tudo mesmo — carrega um pouquinho de energia chamada **mana viva**.
 
-Solunos não é apenas um lugar. É um **chamado**.  
-Um eco de algo que já existiu e que resiste a ser apagado.
-
----
-
-## 🌱 A Alma de Solunos: Mana Viva
-
-Tudo que vive em Solunos carrega em si um sopro espiritual chamado **mana viva**.  
-Essa energia flui por todas as formas de vida, conectando o mundo em um ciclo eterno:  
-**nascimento → vivência → morte → lembrança → renascimento.**
-
-Quando um ser morre, sua mana retorna à natureza.  
-Mas algo permanece: uma **Lembrança Viva**, que carrega sua essência, sentimentos, e potencial.
-
-Essas lembranças são mais que memórias: são **fragmentos conscientes**, capazes de interferir no mundo se forem evocadas.
+Se você parar para escutar uma pedra, talvez ela conte algo que viu há muito tempo.  
+Se prestar atenção na água, talvez ela sussurre um segredo esquecido.
 
 ---
 
-## 🔮 Conexão com as Lembranças
+## 🌱 O Que é Mana Viva?
 
-Alguns Solunares conseguem se conectar com essas lembranças.  
-Ao canalizar mana e estabelecer laços com espíritos esquecidos, eles manifestam ações, habilidades e até personalidades do passado.
+A mana é como a energia do mundo. Ela está nas árvores, nos peixes, nos sonhos e até nas risadas.
 
-> “Não se domina uma Lembrança. Compartilha-se um vínculo com ela.”
+Quando um ser vive em Solunos, ele vai colecionando sentimentos e momentos especiais. Quando parte, essas lembranças não somem — elas viram **Lembranças Vivas**, que continuam existindo por aí, esperando serem encontradas.
 
-Cada Lembrança possui sua própria vontade.  
-Algumas desejam ser lembradas. Outras, apenas descansar.
+Algumas lembranças são brincalhonas, outras tímidas. Algumas querem ser lembradas, outras só querem descansar num cantinho tranquilo.
 
 ---
 
-## ☯️ Forças Primordiais: Zaya e Morgan
+## 🧒 E os Solunares?
 
-Solunos é moldado por duas entidades míticas que regem o fluxo da existência:
+Os habitantes de Solunos são chamados de **Solunares**. Eles são bem diferentes entre si — alguns têm penas, outros brilham, outros são cheios de folhas ou bolhas. Mas todos têm algo em comum: eles cuidam da mana e das lembranças do mundo.
 
-- **Zaya** representa o ciclo, a constância e o reencontro. Ela é o símbolo da ordem, da harmonia e da repetição natural.
-- **Morgan** simboliza o acaso, a mutação e a reinvenção. É a força do caos criativo, do erro fértil e da mudança inesperada.
-
-Essas forças não são inimigas. São complementares.  
-Toda vida em Solunos flui entre Zaya e Morgan, em equilíbrio.
+Alguns Solunares conseguem conversar com as Lembranças. Eles não mandam nelas — eles fazem amizade com elas.
 
 ---
 
-## 🌀 Os Quatro Reinos Vivos
+## ☯️ Zaya e Morgan
 
-A vida em Solunos se manifesta através de **quatro grandes reinos espirituais**, cada um com um estilo único de combate, tradição e conexão com a mana:
+Desde o começo, duas forças mágicas ajudam a manter Solunos em equilíbrio:
 
-- **Aerelis**: reinos celestes, do vento e da eletricidade. Suas criaturas atacam à distância com precisão mística.
-- **Nymara**: águas e correntes emocionais. Focam em controle, redirecionamento e manipulação.
-- **Drelvara**: florestas e fungos vivos. Invocadores que se fortalecem com o crescimento contínuo.
-- **Lumestral**: calor, luz e explosão. Combatentes diretos, intensos e de curta duração.
+- **Zaya** gosta de ciclos, de repetir o que dá certo e de cuidar das tradições. Ela é como uma vovó sábia que sabe exatamente o momento de plantar e colher.
+- **Morgan** adora surpresas, mudanças e ideias novas. Ele é como aquele amigo que aparece com algo inusitado só pra ver o que acontece.
 
-Cada reino desenvolveu formas próprias de acessar as Lembranças — desde rituais aquáticos a explosões de memória cristalizada.
+Os Solunares aprendem que o mundo precisa tanto de calma quanto de novidade.
 
 ---
 
-## ⚔️ Os Desconhecidos: O Apagamento
+## 🌀 Os Reinos Vivos
 
-Solunos vive uma guerra espiritual contra os **Desconhecidos**, também chamados de **Apagadores**. Eles não matam — eles **removem**. Onde tocam, não sobra corpo, alma, nem lembrança.
+Solunos é cheio de lugares diferentes, chamados de **Reinos Vivos**. Cada reino tem seu jeitinho especial de se conectar com a mana e com as lembranças.
 
-Dizem que são ecos do Devorador da Última Realidade. Outros creem que são o próprio Esquecimento ganhando forma.
+- **Aerelis** é o reino do vento e dos relâmpagos, com torres altas e ventos tagarelas.
+- **Nymara** é feito de rios calmos, espelhos d’água e seres que adoram observar tudo.
+- **Drelvara** é cheio de florestas, fungos e plantas que crescem como se estivessem dançando.
+- **Lumestral** é quente e brilhante, com criaturas que parecem estrelinhas saltitantes.
 
-Em resposta, o mundo de Solunos invoca **Guardas**, **Condutores** e **Guardióes** — entidades espirituais, algumas nascidas, outras evocadas — para preservar a existência.
+Cada reino tem lembranças únicas, e cada Solunar encontra o seu jeitinho de escutá-las.
 
 ---
 
-## 🎯 Tema Central
+## ⚠️ Mas nem tudo é fofura...
 
-> **Solunos é sobre lembrar.**
->
-> Lembrar do que somos, do que foi perdido, e do que ainda pode ser.  
-> Cada jogo no universo de Solunos é uma tentativa de impedir o esquecimento — pessoal, coletivo, ou espiritual.
+Existe uma coisa muito perigosa em Solunos: os **Desconhecidos**, também chamados de **Apagadores**.
+
+Eles não quebram. Eles apagam. Onde passam, as lembranças desaparecem — como se nunca tivessem existido. E isso é triste. Porque em Solunos, ser lembrado é continuar existindo de algum jeito.
+
+Por isso, os reinos se unem para proteger o que é importante. Os Solunares mais corajosos se tornam **Guardas da Lembrança**, **Condutores de Mana** e até **Guardióes Espirituais** — prontos para enfrentar o esquecimento e lembrar do que é essencial.
+
+---
+
+## 💫 E o que tudo isso quer dizer?
+
+Solunos é um mundo sobre lembrar.  
+Lembrar das histórias, das pessoas, dos sentimentos…  
+Lembrar quem você é, mesmo quando o mundo muda.
+
+Talvez, ao jogar em Solunos, você também se lembre de algo importante.
+
+Algo seu.
+
+Algo verdadeiro.
