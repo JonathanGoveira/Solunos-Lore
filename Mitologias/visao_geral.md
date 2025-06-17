@@ -1,67 +1,75 @@
 # 🌌 Visão Geral de Solunos
 
-**Solunos** é um mundo antigo, suspenso no limiar entre o universo conhecido e o grande vazio do esquecimento. Um planeta onde tudo que vive está imerso em um ciclo essencial: o da **vida, morte e memória**.
+**Solunos** é um mundo encantado, antigo e cósmico, suspenso no limiar entre a realidade observável e o vazio do esquecimento. Um planeta vivo, onde tudo pulsa com **mana** — a energia da existência — e onde lembrar é mais importante do que sobreviver.
+
+Solunos não é apenas um lugar. É um **chamado**.  
+Um eco de algo que já existiu e que resiste a ser apagado.
 
 ---
 
-## 🌱 A Alma de Solunos
+## 🌱 A Alma de Solunos: Mana Viva
 
-Em Solunos, todos os seres vivos carregam uma energia vital chamada **mana viva** — o sopro da existência. Essa energia circula pelo mundo como um ciclo espiritual, conectando todos os seres a uma rede invisível de lembranças.
+Tudo que vive em Solunos carrega em si um sopro espiritual chamado **mana viva**.  
+Essa energia flui por todas as formas de vida, conectando o mundo em um ciclo eterno:  
+**nascimento → vivência → morte → lembrança → renascimento.**
 
-Durante a vida, cada ser molda uma **Lembrança** única: uma manifestação de sua essência, emoções e experiências. Quando morre, sua mana se dissolve no mundo... mas a Lembrança permanece.
+Quando um ser morre, sua mana retorna à natureza.  
+Mas algo permanece: uma **Lembrança Viva**, que carrega sua essência, sentimentos, e potencial.
 
-As Lembranças são fragmentos vivos daquilo que foi. Elas habitam o mundo espiritual e, quando evocadas, **se tornam forças capazes de mudar o presente**.
+Essas lembranças são mais que memórias: são **fragmentos conscientes**, capazes de interferir no mundo se forem evocadas.
 
 ---
 
 ## 🔮 Conexão com as Lembranças
 
-Alguns seres vivos possuem a capacidade de **se lembrar espiritualmente de quem já existiu**. Ao canalizar sua mana e estabelecer uma conexão, podem manifestar Lembranças — revivendo ações, habilidades, sentimentos e ecos de vidas passadas.
+Alguns Solunares conseguem se conectar com essas lembranças.  
+Ao canalizar mana e estabelecer laços com espíritos esquecidos, eles manifestam ações, habilidades e até personalidades do passado.
 
-Essa conexão não é ensinada. **Ela é sentida.**  
-Não se domina uma Lembrança — **compartilha-se um vínculo com ela.**
+> “Não se domina uma Lembrança. Compartilha-se um vínculo com ela.”
 
-Cada Lembrança tem sua própria personalidade. Algumas são calmas, outras impacientes. Algumas desejam ser lembradas… outras apenas descansar.
+Cada Lembrança possui sua própria vontade.  
+Algumas desejam ser lembradas. Outras, apenas descansar.
+
+---
+
+## ☯️ Forças Primordiais: Zaya e Morgan
+
+Solunos é moldado por duas entidades míticas que regem o fluxo da existência:
+
+- **Zaya** representa o ciclo, a constância e o reencontro. Ela é o símbolo da ordem, da harmonia e da repetição natural.
+- **Morgan** simboliza o acaso, a mutação e a reinvenção. É a força do caos criativo, do erro fértil e da mudança inesperada.
+
+Essas forças não são inimigas. São complementares.  
+Toda vida em Solunos flui entre Zaya e Morgan, em equilíbrio.
 
 ---
 
 ## 🌀 Os Quatro Reinos Vivos
 
-A vida em Solunos floresceu ao redor de quatro grandes Reinos Espirituais, cada um com uma essência elementar distinta. Esses reinos não são apenas geográficos — **eles são manifestações da própria mana**:
+A vida em Solunos se manifesta através de **quatro grandes reinos espirituais**, cada um com um estilo único de combate, tradição e conexão com a mana:
 
-- **Aerelis** — O Reino dos Céus, onde o vento, o trovão e o relâmpago se unem à liberdade e à leveza da memória.
-- **Nymara** — O Reino das Águas, lar da cura, do fluxo e da introspecção. Aqui, as Lembranças escorrem como rios de histórias.
-- **Drelvara** — O Reino das Matas, onde raízes, folhas e fungos tecem redes de proteção e crescimento contínuo.
-- **Lumestral** — O Reino das Brasas, forjado em calor, criação e força. Suas Lembranças são intensas e ardentes.
+- **Aerelis**: reinos celestes, do vento e da eletricidade. Suas criaturas atacam à distância com precisão mística.
+- **Nymara**: águas e correntes emocionais. Focam em controle, redirecionamento e manipulação.
+- **Drelvara**: florestas e fungos vivos. Invocadores que se fortalecem com o crescimento contínuo.
+- **Lumestral**: calor, luz e explosão. Combatentes diretos, intensos e de curta duração.
 
-Cada reino desenvolveu culturas espirituais próprias. Alguns nutrem as Lembranças. Outros as selam. Mas todos **sabem que esquecê-las é um risco — e que apagá-las é perder parte de si.**
-
----
-
-## 🐾 Zaya e Morgan
-
-Zaya e Morgan são entidades enigmáticas, talvez mais antigas que Solunos ou sobreviventes de um mundo anterior.
-
-- **Zaya**, símbolo da constância, da luz e da preservação. Sua presença aquece a memória e sustenta os ciclos naturais da existência.
-- **Morgan**, força do acaso, do eclipse e da mutação. É o silêncio entre lembranças, o espaço entre o que foi e o que poderia ter sido.
-
-Juntos, Zaya e Morgan **guardam o equilíbrio da memória e da mudança**. Quando o mundo começa a desaparecer, eles não intervêm diretamente. Apenas **chamam**…  
-
-…e quem ouve o chamado desperta como um **Guardião**.
+Cada reino desenvolveu formas próprias de acessar as Lembranças — desde rituais aquáticos a explosões de memória cristalizada.
 
 ---
 
-## 🌑 O Esquecimento e a Inexistência
+## ⚔️ Os Desconhecidos: O Apagamento
 
-A maior ameaça de Solunos não é a morte.  
-É o **apagamento** — a **Inexistência**.
+Solunos vive uma guerra espiritual contra os **Desconhecidos**, também chamados de **Apagadores**. Eles não matam — eles **removem**. Onde tocam, não sobra corpo, alma, nem lembrança.
 
-Seres chamados **Ausentes** surgem das frestas do vazio. Eles não esquecem… eles anulam. Onde caminham, a mana se cala, as Lembranças evaporam e a própria realidade começa a falhar.
+Dizem que são ecos do Devorador da Última Realidade. Outros creem que são o próprio Esquecimento ganhando forma.
+
+Em resposta, o mundo de Solunos invoca **Guardas**, **Condutores** e **Guardióes** — entidades espirituais, algumas nascidas, outras evocadas — para preservar a existência.
 
 ---
 
-**Solunos é um mundo onde lembrar é existir.**  
-Onde esquecer é natural…  
-Mas ser apagado é desaparecer para sempre.
+## 🎯 Tema Central
 
-E cabe ao jogador — **o Guardião** — impedir que a última fagulha de memória se apague.
+> **Solunos é sobre lembrar.**
+>
+> Lembrar do que somos, do que foi perdido, e do que ainda pode ser.  
+> Cada jogo no universo de Solunos é uma tentativa de impedir o esquecimento — pessoal, coletivo, ou espiritual.
