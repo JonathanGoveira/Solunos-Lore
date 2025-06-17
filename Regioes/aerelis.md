@@ -1,61 +1,72 @@
 # 🌬️ Reino de Aerelis
 
-## ✨ Sobre o Reino
+## 🌀 O Reino dos Ventos
 
-Aerelis é o reino dos ventos, das nuvens e do céu aberto. Um lugar onde os moradores vivem entre colinas altas, florestas arejadas e pequenas ilhas que flutuam suavemente nas correntes de ar.
+Aerelis é um reino lá no alto, onde o vento nunca dorme e as nuvens parecem ter vontade própria.  
+As vilas são construídas em colinas ventosas e ilhotas que flutuam devagar no céu — algumas presas por cipós, outras simplesmente pairando como folhas ao vento.
 
-Os Solunares que vivem em Aerelis gostam de explorar, observar o céu e aprender com os sons e movimentos do vento. Eles acreditam que o vento carrega histórias de tempos antigos.
-
----
-
-## 🌿 Ambiente e Elementos
-
-- **Ambiente**: colinas, planaltos, florestas com árvores dobradas pelo vento, ilhotas suspensas
-- **Clima**: brisa constante, céu aberto, chuva leve ocasional
-- **Elementos principais**: ar e eletricidade
-
-As construções são feitas de madeira clara, tecidos que dançam com o vento e cataventos encantados que brilham com energia.
+Aqui, todo mundo aprende a ouvir o ar.  
+Porque em Aerelis, o vento **fala**. Ele canta, sussurra, dá risadas... e às vezes até espirra folhas nos outros.
 
 ---
 
-## ⚔️ Estilo de Combate
+## 🌿 Como é viver por aqui?
 
-Os habitantes de Aerelis preferem **manter distância dos inimigos** e usar magias que confundem ou atrasam seus movimentos.
+As casas têm cataventos mágicos, roupas estendidas ao vento e escadas que se movem com a brisa.  
+Alguns moradores preferem andar de planador, outros usam pipas para se comunicar.
 
-- Usam rajadas de vento para empurrar inimigos
-- Criam nuvens que escondem seus aliados
-- Invocam pequenos relâmpagos para causar choques leves
-
----
-
-## 🐦 Espécies e Personagens
-
-- **Penudos**: passarinhos mágicos que adoram voar em espiral e cantar. Alguns acompanham aventureiros.
-- **Ventecos**: espíritos brincalhões do vento que giram como piões e ajudam com recados.
-- **Condutores**: Solunares que aprenderam a guardar eletricidade em seus instrumentos, como pandeiros e bengalas de cristal.
+- **Clima**: sempre arejado, com nuvens dançando lá em cima.
+- **Paisagens**: campos altos, árvores inclinadas, pedras que assobiam.
+- **Elementos do reino**: ar e eletricidade suave.
 
 ---
 
-## 🔮 Lembranças em Aerelis
+## ⚡ Como eles lutam?
 
-Aqui, as lembranças são encontradas nos **sons do vento**. Algumas memórias vêm com assobios entre as árvores, outras são sussurradas por folhas que dançam no ar.
+Os Solunares de Aerelis não gostam muito de brigas... mas se for preciso, preferem resolver tudo de longe.
 
-- Algumas famílias guardam lembranças em sinos de vento
-- Outras cultivam plantas que “cantam” com o vento e despertam memórias boas
+- Usam **rajadas de vento** para empurrar inimigos.
+- Criam **nuvens que confundem** quem tenta se aproximar.
+- Alguns tocam **instrumentos elétricos** para lançar relâmpagos pequeninos.
 
----
-
-## ☯️ Tradições
-
-- **Zaya** é representada pelo vento que sempre volta: as brisas que visitam todos os lugares e retornam ao começo.
-- **Morgan** é lembrada nas tempestades, nas mudanças rápidas do clima e no som dos trovões repentinos.
-
-Os moradores de Aerelis aprendem que nem todo vento é calmo, e que até as rajadas mais fortes têm algo a ensinar.
+É mais sobre dançar com o vento do que enfrentar de frente.
 
 ---
 
-## 🌈 Estilo visual e símbolos
+## 🐦 Criaturas e Amigos
 
-- Cataventos, pipas, sinos de vento e penas
-- Formas arredondadas, roupas leves e faixas ao vento
-- Cores: azul-céu, branco, lilás e amarelo brilhante
+- **Penudinhos**: pequenos pássaros de penas macias que adoram andar no ombro dos viajantes.
+- **Ventecos**: redemoinhos vivos que fazem cócegas e entregam bilhetes mágicos.
+- **Zepelins Sentinelas**: balões flutuantes com olhos simpáticos que observam o céu e avisam quando vem tempestade.
+
+Todo mundo aqui parece flutuar um pouquinho, até quem anda devagar.
+
+---
+
+## 🔔 Como encontram as lembranças?
+
+As **Lembranças** em Aerelis gostam de se esconder em assobios, redemoinhos e sinos de vento.
+
+- Às vezes, uma música antiga no ar traz uma memória esquecida.
+- Algumas crianças colecionam folhas que caem “dançando” — dizem que elas sussurram nomes quando a noite chega.
+
+---
+
+## ☯️ E sobre Zaya e Morgan?
+
+- **Zaya** é sentida nas brisas que vão e voltam — como promessas que nunca se esquecem.
+- **Morgan** aparece nas tempestades rápidas e nos trovões que mudam tudo em um instante.
+
+Os moradores de Aerelis aprendem que até o vento mais calmo pode virar uma reviravolta divertida.
+
+---
+
+## 🎨 Estilo do Reino
+
+- **Cores**: azul-claro, branco, lilás e amarelo brilhante
+- **Símbolos**: cataventos, penas, sinos e linhas onduladas
+- **Arquitetura**: tudo com cordas, tecidos, plataformas que balançam, e muitos lugares para sentar e observar o céu
+
+---
+
+Aerelis é o lugar perfeito para quem gosta de imaginar, ouvir histórias no vento e deixar os pensamentos voarem bem longe — e depois voltarem cheios de novidades.
