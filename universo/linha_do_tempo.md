@@ -1,57 +1,85 @@
 # 📜 Linha do Tempo de Solunos
 
-A história de Solunos é contada em ecos — fragmentos de lembranças preservadas por poucos. Nem tudo está claro, e há lacunas que nem os mais antigos espíritos conseguem preencher. Mas alguns marcos permaneceram como pilares da memória coletiva.
+Em Solunos, o tempo não é contado com relógios ou calendários.  
+Ele é medido por **Lembranças** — aquelas que sobreviveram ao silêncio, ao esquecimento, e às travessuras do acaso.
+
+Nem todas as eras são claras. Algumas sumiram. Outras ainda vivem em sussurros.  
+Mas há lembranças que se repetem... e isso basta para contar a história.
 
 ---
 
-## 🌅 Era da Harmonia
+## 🌼 Era dos Primeiros Passos
 
-Nesta era, a mana fluía em abundância, e os reinos de **Aerelis**, **Nymara**, **Drelvara** e **Lumestral** floresciam em suas próprias direções.
+Dizem que Solunos **acordou devagar**, como um mundo que estava sonhando com sua própria existência.
 
-Embora houvesse disputas e guerras ocasionais, nenhuma ameaça parecia capaz de abalar os fundamentos do mundo. Os vivos desenvolviam suas **Lembranças** e aprendiam a se conectar com os espíritos ancestrais, formando uma teia viva de memória e poder.
+A mana viva começou a se espalhar, curiosa.  
+As primeiras criaturas surgiram como risos no vento e bolhas no lago.
 
----
-
-## 🌫️ A Guerra Silenciosa
-
-Em certo ciclo, a mana começou a se calar.
-
-As conexões com as Lembranças tornaram-se instáveis, os laços com os espíritos frágeis, e muitos reinos entraram em conflito, acusando uns aos outros de corromper o fluxo vital do mundo.
-
-Foi nesse tempo de desconfiança e rupturas que surgiram os **Ausentes** — entidades sem rosto, que não possuíam nem mana, nem lembrança. Apenas um rastro de **Inexistência**.
-
-Eles não vinham de lugar algum. Não deixavam rastros. Apenas o vazio. E onde tocavam, as Lembranças sumiam. Como se nunca tivessem existido.
+Ainda não havia reinos, mas já havia vontade de viver e guardar o que era bonito.
 
 ---
 
-## 🌑 A Era da Inexistência
+## 🌳 Era das Coisas que Crescem
 
-Apesar das tentativas dos vivos de restaurar o equilíbrio, os **Ausentes** espalharam a Inexistência por toda Solunos.
+Os reinos de **Penuva**, **Gluba**, **Trufi** e **Firi** começaram a florescer.
 
-Regiões inteiras se tornaram cinzas. Espíritos começaram a desaparecer. As memórias foram apagadas. Até mesmo as Lembranças mais poderosas deixaram de responder aos chamados. Cidades evaporaram dos mapas e dos pensamentos.  
+Cada um foi crescendo do seu jeito:  
+- um no alto das nuvens,  
+- outro dentro dos lagos,  
+- outro nas raízes mais profundas,  
+- e um no calor das montanhas.
 
-Solunos estava lentamente se dissolvendo.
-
----
-
-## 🌌 O Chamado Silencioso
-
-Ninguém sabe ao certo como ou quando começou. Alguns dizem que foi Zaya, outros afirmam ter ouvido a risada de Morgan entre os ecos do tempo.  
-
-O que se sabe é que uma presença **desconhecida**, mas **antiga**, começou a despertar nas ruínas esquecidas.
-
-Sussurros falavam de **Guardiões** — seres que não pertencem a Solunos, mas que carregam em si fragmentos de algo que já foi... ou que ainda pode ser.
-
-Eles não nasceram neste mundo. Mas atendem a um chamado.
-
-**Talvez Solunos ainda possa ser lembrada. Talvez não tenha sido tarde demais.**
+A mana fluía por todo lado.  
+As criaturas criavam Lembranças.  
+E os Solunares começaram a ouvir histórias até nas pedrinhas do chão.
 
 ---
 
-## 📖 O Presente
+## 🌫️ Era dos Sussurros Partidos
 
-Solunos vive em ruínas. Sua existência pende por um fio de memória. Os reinos estão fragmentados, as lembranças desaparecem a cada ciclo, e os Ausentes continuam a espalhar a Inexistência.
+Um dia, algo ficou estranho.
 
-Mas enquanto **algo ou alguém** ainda se lembra...
+Algumas folhas pararam de contar histórias. Algumas águas esqueceram o caminho.  
+Ninguém sabia o motivo, mas parecia que **o mundo estava perdendo partes de si mesmo**.
 
-**...há esperança.**
+Foi quando os primeiros **Desconhecidos** surgiram — seres que não tinham lembrança, nem forma, nem cor certa.  
+Eles não destruíam. **Eles apagavam.**
+
+---
+
+## 🌑 Era dos Não-Lugares
+
+Com o tempo, lugares inteiros desapareceram. Cidades, trilhas, árvores… tudo sumia sem deixar vestígio.
+
+Os Desconhecidos continuavam a se espalhar.  
+Onde passavam, nada mais lembrava de ter existido.
+
+Alguns reinos se fecharam. Outros esqueceram seus próprios nomes por um tempo.  
+O mundo ficou mais silencioso. Como se estivesse apagando devagar.
+
+---
+
+## 🌌 Era dos Guardiões *(Era atual)*
+
+Quando tudo parecia ruir de vez... **eles surgiram**.
+
+Ninguém sabe de onde vêm. Eles não nasceram em Solunos, mas carregam memórias que ninguém mais tem.  
+Chamam-se **Guardiões**.
+
+Alguns acham que Zaya os chamou com cuidado. Outros acreditam que Morgan deixou pistas para que encontrassem o caminho.
+
+O que importa é que, com os Guardiões, **as Lembranças começaram a reagir**.  
+As criaturas voltaram a sonhar. E os reinos, mesmo separados, sentiram esperança.
+
+---
+
+## ✨ O Que Está Acontecendo Agora?
+
+Solunos ainda está machucado, mas não está sozinho.
+
+- Os Desconhecidos continuam aparecendo.
+- As Lembranças continuam sumindo aqui e ali.
+- Mas os Guardiões continuam chegando também.
+
+Enquanto houver quem se lembre…  
+**Solunos ainda existe.**
