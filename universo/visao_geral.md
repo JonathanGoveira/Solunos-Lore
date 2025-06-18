@@ -39,21 +39,23 @@ Os Solunares aprendem que o mundo precisa tanto de calma quanto de novidade.
 
 ## 🌀 Os Reinos Vivos
 
-Solunos é cheio de lugares diferentes, chamados de **Reinos Vivos**. Cada reino tem seu jeitinho especial de se conectar com a mana e com as lembranças.
+Solunos é cheio de lugares diferentes, chamados de **Reinos Vivos**. Cada reino tem seu jeitinho especial de se conectar com a mana e com as lembranças — e cada um é ligado a um elemento natural.
 
 ### 🌬️ **Penuva**  
-O reino dos ventos e das nuvens. As criaturas de Penuva vivem nas alturas, entre ilhotas flutuantes e correntes de ar brincalhonas.
+O reino dos **ventos, relâmpagos e trovões**. Suas criaturas vivem nas alturas, entre nuvens que cantam e ilhotas que flutuam no céu. O ar sopra canções antigas, e às vezes, um raio traz uma lembrança de volta.
 
 ### 🌊 **Gluba**  
-O reino dos lagos, bolhas e reflexos. Tudo é calmo por aqui — mas debaixo da superfície, as memórias dançam.
+O reino dos **lagos, mares e bolhas dançantes**. Por cima, tudo é calmo. Mas sob a água, existem lembranças profundas, criaturas que brilham, e correntes que levam segredos esquecidos de um lugar para outro.
 
 ### 🌿 **Trufi**  
-O reino das florestas vivas, raízes e folhas com histórias. Aqui, até as árvores conversam baixinho com quem quiser escutar.
+O reino das **florestas vivas, raízes mágicas e campos de musgo fofo**. Tudo aqui cresce devagar, mas com propósito. As árvores falam entre si, os brotos guardam histórias, e até uma folha caída pode ter uma memória antiga.
 
 ### 🔥 **Firi**  
-O reino das cavernas quentinhas, da luz que pisca e do calor que faz cócegas. As faíscas daqui adoram pular e contar piadas.
+O reino das **cavernas quentinhas, das montanhas que brilham e do calor que pulsa como coração**. Aqui nascem faíscas alegres, cristais vivos e labaredas que lembram festas. As rochas guardam lembranças adormecidas, prontas pra despertar.
 
-Cada reino tem lembranças únicas, e cada Solunar encontra o seu jeitinho de escutá-las.
+Cada reino tem suas próprias criaturas, cores, sons e lembranças.  
+E cada Solunar escuta o mundo de um jeitinho diferente.
+
 
 ---
 
