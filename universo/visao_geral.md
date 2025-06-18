@@ -61,7 +61,7 @@ E cada Solunar escuta o mundo de um jeitinho diferente.
 
 ## ⚠️ Mas nem tudo é fofura...
 
-Existe uma coisa muito perigosa em Solunos: os **Desconhecidos**, também chamados de **Apagadores**.
+Existe uma coisa muito perigosa em Solunos: os **Desconhecidos**.
 
 Eles não quebram. Eles apagam. Onde passam, as lembranças desaparecem — como se nunca tivessem existido. E isso é triste. Porque em Solunos, ser lembrado é continuar existindo de algum jeito.
 
