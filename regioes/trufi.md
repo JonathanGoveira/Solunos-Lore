@@ -1,77 +1,75 @@
-# 🌳 Reino de Drelvara
+# 🌿 Reino de Trufi
 
-## 🍄 O Reino das Coisas que Crescem
+## 🍄 O Reino das Florestas Vivas e Coisas que Crescem
 
-Drelvara é um reino coberto de floresta mágica — mas não daquelas sombrias.  
-É tudo colorido, cheio de folhas fofinhas, flores que espirram pólen perfumado e fungos com carinhas sorridentes.
+Trufi é um reino coberto por florestas mágicas onde tudo está sempre crescendo — raízes, folhas, fungos, ideias... e até os próprios moradores!
 
-Aqui, tudo está crescendo o tempo todo.  
-Mesmo os moradores parecem estar sempre mudando: ficando mais fortes, maiores ou mais esquisitos... mas no bom sentido!
+Nada aqui é parado. As plantas se mexem devagar, os galhos se espreguiçam ao sol, e algumas árvores contam piadas se você escutar com atenção.
 
----
-
-## 🌿 Como é viver por aqui?
-
-Os Solunares de Drelvara moram em árvores ocas, tocos vivos e casas feitas de raízes entrelaçadas.  
-Eles cuidam das plantas como se fossem parte da família — porque, na verdade, **são mesmo**.
-
-- **Clima**: úmido, cheiroso e sempre com musgo nos pés.
-- **Paisagens**: clareiras com luz filtrada, cavernas com cristais vegetais, plantações de frutas mágicas.
-- **Elementos do reino**: terra, vida e fungos.
-
-É comum ver alguém conversando com uma flor ou pedindo licença a uma raiz para passar.
+É um lugar cheio de musgo fofinho, flores tagarelas e criaturas que parecem saídas de um sonho verde.
 
 ---
 
-## 🍂 Como eles lutam?
+## 🌱 Como é viver por aqui?
 
-Os Solunares de Drelvara **não gostam de brigar sozinhos**. Preferem chamar ajuda!
+- **Clima**: úmido, cheiroso, com aquela sensação de depois da chuva o tempo todo.
+- **Paisagens**: clareiras luminosas, árvores altas com galhos largos, raízes que formam túneis, e florestas que mudam de forma com o tempo.
+- **Elementos do reino**: terra viva, plantas, fungos e crescimento natural.
 
-- Invocam brotos que pulam no inimigo.
-- Plantam sementes que crescem rapidinho e viram escudos ou armadilhas.
-- Alguns criam vinhas dançarinas que fazem cócegas nos adversários.
-
-Quanto mais plantas e aliados no campo, mais fortes eles ficam!
-
----
-
-## 🐛 Criaturas e Amigos
-
-- **Folhudos**: pequenos seres feitos de folhas e galhinhos que adoram se enrolar nas pernas dos outros.
-- **Esporentos**: cogumelos fofos que espirram esporos coloridos quando ficam felizes (ou assustados!).
-- **Brotilus**: bolotas saltitantes que crescem toda vez que são elogiadas.
-
-Ninguém aqui cresce igual. E tudo bem!
+Os Solunares de Trufi moram em casas feitas de troncos ocos, raízes entrelaçadas ou flores gigantes.  
+Eles cuidam das plantas como parte da família — e muitas vezes, elas respondem de volta!
 
 ---
 
-## 🌼 Como encontram as lembranças?
+## 🍂 Como os Solunares lutam?
 
-Em Drelvara, as Lembranças se escondem **no crescimento das coisas**.
+Os Solunares de Trufi gostam de **crescer com ajuda**. Nunca enfrentam um problema sozinhos.
 
-- Uma flor que só nasce quando alguém lembra de um momento feliz.
-- Um tronco que brilha por dentro ao ouvir uma canção antiga.
-- Ou uma espora que libera memórias em forma de imagens flutuantes.
+- Invocam brotos saltitantes para atrapalhar os inimigos.
+- Plantam sementes que brotam em segundos, virando escudos ou cipós.
+- Criam vinhas que prend,em, distraem e às vezes fazem cócegas nos adversários.
 
-Dizem que, ao cuidar bem de algo, você ajuda as lembranças a voltarem também.
+Quanto mais plantas no campo... mais difícil é passar por eles.
+
+---
+
+## 🌸 Criaturas de Trufi
+
+- **Folhinos**: pequenos seres feitos de folhas, galhos e raízes. Pulam entre os galhos e protegem quem cuidou bem da floresta.
+- **Esponjinhos**: cogumelos andantes que soltam nuvens de esporos mágicos — alguns curam, outros confundem os inimigos.
+- **Brotinhos**: bolotas mágicas que crescem toda vez que alguém as elogia. Algumas chegam a virar pequenos gigantes durante uma batalha!
+
+As criaturas de Trufi são amigáveis, mas não gostam que mexam nas suas flores sem permissão.
+
+---
+
+## 🌼 Como encontram as Lembranças?
+
+As **Lembranças** em Trufi nascem junto com a natureza.
+
+- Uma flor que só desabrocha quando alguém se lembra de um momento feliz.
+- Um tronco que brilha por dentro quando ouve uma canção esquecida.
+- Esporos que liberam imagens suaves no ar quando tocados com cuidado.
+
+Em Trufi, cuidar de algo com carinho pode fazer uma memória crescer de volta.
 
 ---
 
 ## ☯️ E sobre Zaya e Morgan?
 
-- **Zaya** é sentida no crescimento das plantas, nas estações que voltam e nas raízes que nunca esquecem.
-- **Morgan** aparece nos brotos inesperados, nas mutações engraçadas e nas frutas que ninguém sabe de onde vieram.
+- **Zaya** está nas estações que voltam, nas folhas que caem e voltam a crescer, e nas raízes que sabem para onde voltar.
+- **Morgan** está nas sementes misteriosas que brotam de surpresa e nas flores que mudam de cor só pra te confundir.
 
-Os moradores de Drelvara acreditam que **crescer é uma aventura cheia de surpresas** — e que tudo pode florescer, se for bem cuidado.
+Aqui, todo mundo aprende que **crescer é imprevisível — mas sempre mágico**.
 
 ---
 
 ## 🎨 Estilo do Reino
 
-- **Cores**: verde, marrom-claro, laranja terroso e rosa-salmão
-- **Símbolos**: folhas com carinhas, espirais de crescimento, flores abertas, cogumelos com chapéus engraçados
-- **Arquitetura**: raízes entrelaçadas, pontes vivas de trepadeiras, casas que se movem devagar como caracóis
+- **Cores**: verde-oliva, marrom-claro, tons de cogumelo, rosa-musgo e florais quentes
+- **Símbolos**: folhas sorridentes, esporos flutuantes, brotos espiralados, cogumelos com olhos carinhosos
+- **Arquitetura**: casas-vivas de raízes, caminhos em galhos largos, pontes feitas de trepadeiras, portas feitas de pétalas
 
 ---
 
-Drelvara é o lugar ideal para quem gosta de plantar coisas, fazer amigos esquisitos e descobrir que até o menor broto pode virar uma árvore imensa — cheia de histórias pra contar.
+Trufi é o lugar ideal para quem gosta de plantar amizades, crescer aos pouquinhos, e descobrir que até o menor brotinho pode guardar uma lembrança imensa.
