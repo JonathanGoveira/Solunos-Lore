@@ -1,76 +1,77 @@
-# 🔥 Reino de Lumestral
+# 🔥 Reino de Firi
 
-## ✨ O Reino que Brilha
+## 🌋 O Reino das Cavernas Quentes e Montanhas de Luz
 
-Lumestral é um reino onde tudo parece ter acabado de acordar de um sonho cheio de energia!  
-O chão é quente (mas confortável), as pedras têm brilhos coloridos, e o céu muda de cor conforme o humor do dia.
+Firi é um reino que pulsa como um coração de fogo.
 
-Aqui, é normal ver alguém pulando, rindo ou lançando faíscas de empolgação sem motivo algum.  
-Porque em Lumestral, a **alegria pega fogo** (no bom sentido, claro!).
+Aqui, o chão é quente, as pedras brilham por dentro e a noite nunca é totalmente escura.  
+As vilas ficam em cavernas iluminadas por cristais flamejantes ou em encostas de montanhas com vista para os vulcões adormecidos.
 
----
-
-## 🔥 Como é viver por aqui?
-
-Os Solunares de Lumestral são apaixonados por movimento, luz e calor.  
-Vivem em casas esculpidas dentro de cristais gigantes ou em topos de montanhas vulcânicas adormecidas.
-
-- **Clima**: quente, seco e cheio de brisas mornas
-- **Paisagens**: cânions brilhantes, campos de cristal flamejante, rios de lava calma
-- **Elementos do reino**: fogo, luz e calor vital
-
-À noite, o céu de Lumestral fica cheio de pequenos brilhos dançantes — como vaga-lumes que nunca se cansam.
+Em Firi, tudo é intenso — das emoções às labaredas.
 
 ---
 
-## 💥 Como eles lutam?
+## 🌾 Como é viver por aqui?
 
-Lumestral gosta de **ações rápidas, diretas e brilhantes**.  
-Se for pra entrar numa luta, que seja com estilo!
+- **Clima**: quente e seco, com brisas quentes que cheiram a fumaça doce.
+- **Paisagens**: montanhas fumegantes, trilhas de pedra, cavernas com rios de luz e campos de cristais em brasa.
+- **Elementos do reino**: fogo, calor vivo, faíscas, brasas e fumaça mágica.
 
-- Criam explosões pequenas que afastam os inimigos
-- Soltam faíscas que saltam de um adversário para o outro
-- Acendem a si mesmos para brilhar tanto que confundem quem estiver por perto
-
-É como dançar e lutar ao mesmo tempo.
+Os Solunares de Firi moram em casas esculpidas nas rochas ou em cavernas vivas que brilham com o humor dos moradores.  
+Eles são animados, expressivos e adoram celebrar a vida — com muita luz e som.
 
 ---
 
-## 🔥 Criaturas e Amigos
+## 🔥 Como os Solunares lutam?
 
-- **Faíscos**: bolinhas de fogo vivas que dão pulos aleatórios e soltam risadinhas quando alguém se assusta
-- **Brasentos**: criaturas flamejantes que gostam de dar abraços quentinhos (só depois de esfriar um pouco!)
-- **Piriluns**: vaga-lumes mágicos que fazem desenhos de luz no ar enquanto voam em círculos
+Os Solunares de Firi gostam de **ataques diretos e fortes**.  
+Eles não enrolam: se é pra proteger alguém ou acender uma lembrança, eles vão com tudo.
 
-Aqui, até as pedras gostam de festa.
+- Pulam no campo como uma faísca viva, causando impacto imediato.
+- Soltam rajadas de calor que queimam o ar ao redor.
+- Usam explosões curtas e controladas para abrir espaço, assustar inimigos e brilhar alto.
+
+Eles brilham forte e rápido — e depois somem como uma centelha satisfeita.
 
 ---
 
-## 🌟 Como encontram as lembranças?
+## 🧨 Criaturas de Firi
 
-As Lembranças em Lumestral aparecem com **fortes emoções**, especialmente alegria, empolgação e coragem.
+- **Pulinhos**: criaturas saltitantes feitas de energia quente. Cada pulo deixa um rastro brilhante no chão — e um baque no inimigo.
+- **Fumacinhos**: bolinhas de fumaça viva com olhos brilhantes. Somem e reaparecem em outros lugares com rapidez, deixando rastros que confundem os adversários.
+- **Faiscões**: faíscas animadas e poderosas. Saltam como fogos de artifício vivos, explodindo em pequenas chamas quando estão animadas — ou irritadas.
 
-- Algumas surgem quando alguém ri de verdade
-- Outras aparecem em cristais que brilham mais forte perto de memórias esquecidas
-- E há quem diga que certos fogos mágicos sussurram nomes ao estourar no céu
+As criaturas de Firi podem parecer brincalhonas… mas ninguém quer mexer com elas de mau humor.
+
+---
+
+## 🔥 Como encontram as Lembranças?
+
+As **Lembranças** em Firi costumam estar escondidas **em lugares quentes, brilhantes ou pulsantes**.
+
+- Dentro de cristais em brasa que só reagem ao toque certo.
+- Em fogueiras mágicas que contam histórias com as chamas.
+- Ou em carvões vivos que brilham quando ouvem o nome de alguém esquecido.
+
+Às vezes, lembrar em Firi exige coragem. Mas a luz que volta aquece tudo ao redor.
 
 ---
 
 ## ☯️ E sobre Zaya e Morgan?
 
-- **Zaya** é lembrada nas brasas que continuam acesas mesmo depois da festa — o calor que não vai embora.
-- **Morgan** está no estalo da faísca inesperada, na chama que muda de cor sem aviso e nas gargalhadas explosivas.
+- **Zaya** é o calor que nunca apaga, a chama que cuida e a brasa que fica mesmo quando o fogo parece sumir.
+- **Morgan** é a faísca inesperada, a explosão súbita e a chama que muda tudo num piscar de olhos.
 
-Os Solunares daqui acreditam que a luz serve para **mostrar o caminho e afastar o medo**, mesmo nos dias escuros.
+Em Firi, os Solunares aprendem que até o fogo sabe a hora de brilhar... e a hora de se transformar.
 
 ---
 
 ## 🎨 Estilo do Reino
 
-- **Cores**: laranja, vermelho, dourado, branco quente e rosa-luminoso
-- **Símbolos**: chamas com olhos sorridentes, espirais solares, explosões em formato de flor
-- **Arquitetura**: cristais ocos, cavernas brilhantes, passarelas de obsidiana com detalhes de luz mágica
+- **Cores**: vermelho-vivo, laranja, dourado, carvão e tons de rocha quente
+- **Símbolos**: faíscas, olhos flamejantes, brasas espiraladas, labaredas sorridentes
+- **Arquitetura**: casas em cavernas ou montanhas, luz natural de cristais flamejantes, caminhos iluminados por fogo mágico
 
 ---
 
-Lumestral é perfeito para quem gosta de brilhar, rir alto, correr sem motivo e acender o mundo com sua própria energia.
+Firi é o lugar perfeito para quem sente tudo com força, acredita em segundas chances e entende que até uma faísca pode reacender o mundo inteiro.
