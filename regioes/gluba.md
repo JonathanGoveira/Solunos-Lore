@@ -42,7 +42,7 @@ Eles não buscam confronto, mas sabem transformar o campo em um lugar onde só e
 
 - **Aguados**: criaturas arredondadas feitas de água viva. Podem mudar de forma, crescer e até endurecer quando se sentem ameaçados.
 - **Molinhos**: seres longos e elásticos que deslizam na água e no ar com graça — mas também podem se enrolar em inimigos e afastá-los com força.
-- **Chuviscos**: pequenos espíritos que parecem gotas com olhos. Costumam repetir o que ouvem, mas quando em grupo, podem gerar ecos mágicos poderosos.
+- **Chuviscos**: pequenas criaturas em forma de gota com olhos brilhantes. Quando se sentem ameaçados, disparam jatos d’água pressurizada como se fossem esguichos mágicos — rápidos, precisos e barulhentos.
 
 Em Gluba, as criaturas são calmas... até que alguém mexa com o que deve ser protegido.
 
